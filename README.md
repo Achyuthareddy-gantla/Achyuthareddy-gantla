@@ -6,4 +6,4 @@
 - 💬 Ask me about my favourite thngs to do
 - 📫 How to reach me: ...
 - 😄 Pronouns: she
-- ⚡ Fun fact: setupnalaram for every one minute but snoozes it off
+- ⚡ Fun fact: setup an alaram for every one minute but snoozes it off
